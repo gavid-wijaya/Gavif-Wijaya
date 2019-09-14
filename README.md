@@ -1,1 +1,0 @@
-# Gavif-Wijaya
